@@ -1,0 +1,1 @@
+O curso está excelente! apreendendo muito... nota 10.
